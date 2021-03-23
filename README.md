@@ -1,1 +1,0 @@
-# digital-delight.github.io
